@@ -1,0 +1,1 @@
+https://lehre.idh.uni-koeln.de/lehrveranstaltungen/sommersemester-2024/fortgeschrittene-programmierung/
